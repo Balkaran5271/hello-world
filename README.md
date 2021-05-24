@@ -1,1 +1,2 @@
 # hello-world
+Enrolled in the course Web Design, I look forward to learn creating design and layouts for websites. Consequently, I would like to design my own website at the end of the course. The scope of Internet design is increasing rapidly nowadays, which makes web design a lucrative option in the sector. I want to learn all the skills needed to become a successful web designer and become able to design a website on my own for any company or organization in the market. Looking forward to pursue the course along with the other intellectual minds!!
